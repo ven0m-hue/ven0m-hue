@@ -1,7 +1,7 @@
 -  👋 Hi, I’m @ven0m-hue
 -  Space, void, hole, vaccum.
 -  Self proclaimed amateur astronomer. Anything remotely related to astronomy, avionics aka Space Science and Tech). I'm in.
--  I write funny blog on astronomy. Sometimes. 
+-  I write funny blogs on astronomy. Sometimes. 
 -  well well, I am not all space and stuff. I sometimes get lost in philosophy, metaphysics.
 -  Neuroscience, EEG, ECG, BCI intrests me.
 -  I am great at one on one conversation. If you love to talk about future, life, spirituality, purpose, money. Hit me up!
