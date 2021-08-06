@@ -7,7 +7,7 @@
 -  I am great at one on one conversation. If you love to talk about future, life, spirituality, purpose, money. Hit me up!
 
 
-   Ps: Please do not reach me @ 📫 venkatesh17nayak@gmail.com
+   Ps: You can reach me @ 📫 venkatesh17nayak@gmail.com
 
 <!---
 ven0m-hue/ven0m-hue is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
