@@ -4,7 +4,7 @@
 -  I write funny blogs on astronomy. Sometimes. 
 -  Well well, I am not all space and stuff. I sometimes get lost in philosophy, metaphysics.
 -  Neuroscience, EEG, ECG, BCI intrests me.
--  I am great at one on one conversation. If you love to talk about future, life, spirituality, purpose, money. Hit me up!
+-  I am all ears for a one on one conversation. If you love to talk about future, life, spirituality, purpose, money. Hit me up!
 
 
    Ps: You can reach me @ 📫 venkatesh17nayak@gmail.com
